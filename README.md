@@ -1,5 +1,5 @@
+<img width="1200" height="1200" alt="image" src="https://github.com/user-attachments/assets/64101497-56b3-4eb9-8df8-5f686f28224c" />
 
-![IMG_0503](https://github.com/user-attachments/assets/f1071937-046d-4695-b0f1-c41515bb7496)
 
 -- ❀༉‧ pebble fictkin, pls doubles dni
 
